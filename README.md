@@ -1,4 +1,7 @@
-![alt image](https://files.catbox.moe/3aeqv9.png)
- <p align="center"><img src="https://komarev.com/ghpvc/?username=GUESTLING&color=960606&label=ANNOYING" alt="Centered Image"> <br></p>
- <p align="center"> im guest and you can int plz dont call my guest skins forsaken! i kin guest and yes idk what to put here blebleb.. i also mass follow people so plz block me if you dont want me to follow you @_@ also links dont work for some reason so uihhhhh fuck you github i guess :(((
- <p align="center"> rentry best viewed on computer
+![alt image](https://files.catbox.moe/46ad6x.png)
+ <p align="center"><img src="https://komarev.com/ghpvc/?username=santaclauses&color=c92225&label=NAUGHTY" alt="Centered Image"> <br></p>
+ <p align="center"> $${\color{#ad190a}i \space \color{#ad190a}spam \space \color{#ad190a}follow, \space \color{#ad190a}kindly \space \color{#ad190a}softblock \space \color{#ad190a}if \space \color{#ad190a}you \space \color{#ad190a}dont \space \color{#ad190a}want \space \color{#ad190a}me \space \color{#ad190a}to \space \color{#ad190a}follow \space \color{#ad190a}you \space \color{#ad190a}please.}$$
+  
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ [<img src=https://files.catbox.moe/jgou5c.png width="200" height="150">](https://rentry.co/christmased)
+   
+![alt image](https://files.catbox.moe/035yxz.png)
